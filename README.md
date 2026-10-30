@@ -1,3 +1,5 @@
+SkillCraft Technology - Poster Design Concept 
+
 Description of the Poster 🌍
 The poster conveys a strong message about environmental protection and sustainable development.
  
